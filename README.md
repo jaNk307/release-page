@@ -8,7 +8,7 @@
 
 
 
-**在线预览：[https://release.shiguangdev.cn](https://release.shiguangdev.cn/)**
+**在线预览：[https://release.shiguang666.eu.org](https://release.shiguang666.eu.org)**
 
 ## 使用方法
 
